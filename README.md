@@ -4,4 +4,4 @@ Outside of school, I enjoy making music, climbing rocks, learning about election
 
 
 
-**:envelope: [Email](mailto:contact@nli.slmail.me) / :link: [Linkedin](https://www.linkedin.com/in/nli0/) / 🔗: [Website](nli0,github.io) / :mortar_board: [Google Scholar](https://scholar.google.com/citations?user=2XmBzbcAAAAJ)**
+**✉️ [Email](mailto:contact@nli.slmail.me) / 🔗 [Linkedin](https://www.linkedin.com/in/nli0/) / 🕸️ [Website](nli0,github.io) / 🎓 [Google Scholar](https://scholar.google.com/citations?user=2XmBzbcAAAAJ)**
